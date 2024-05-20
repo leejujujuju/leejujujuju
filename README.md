@@ -1,4 +1,3 @@
-hello, lee ju young  
-hahahaahahahaha
-hehehehehehehehe
-final
+hello, i am lee ju young  
+nice to meet you
+
