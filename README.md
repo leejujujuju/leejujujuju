@@ -4,3 +4,4 @@ eifjoewjfewjfiwejgergofejfoiewfjoiew
 feoijfowejfew
 
 
+2.특기 업데이트
